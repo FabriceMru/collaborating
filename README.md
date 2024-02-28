@@ -26,3 +26,7 @@ This recipe is also perfect for gamey meats such as rabbit or duck. It is common
   5  tsp salt
   5 kg cayenne pepper
   3 tbsp vegetable oil
+
+#THIS IS THE END
+# This is not a secret family receipe 
+## This is the last resort
