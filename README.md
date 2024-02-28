@@ -23,5 +23,6 @@ This recipe is also perfect for gamey meats such as rabbit or duck. It is common
   1 tsp chilli flakes
   100 ml red wine
   200 g tomato puree
-  1 tsp salt
+  5  tsp salt
+  5 kg cayenne pepper
   3 tbsp vegetable oil
